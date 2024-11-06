@@ -3,7 +3,7 @@
 
 # 注册
 
-没有注册的可以支持一下我，走我的邀请链接谢谢：[点击这里](https://app.getgrass.io/register/?referralCode=W2P80MXsTm9LaC6)
+没有注册的可以支持一下我，走我的邀请链接谢谢：[点击这里](https://app.getgrass.io/register/?referralCode=xq3sD2Lcj9kggy9)
 
 # 警告和注意事项
 
